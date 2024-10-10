@@ -12,4 +12,4 @@ vitor.maruchi@escola.pr.gov.br
 
 @vitor-080
 
-![.](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmakeagif.com%2Fgif%2Fnossa-que-bosta-hSaNLe&psig=AOvVaw3g09dNl2FFvhf_CeEIn28V&ust=1728664547742000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCIjMxrSfhIkDFQAAAAAdAAAAABAE)
+![.](https://tenor.com/pt-BR/view/when-the-banana-sells-a-million-dollars-gif-11873212726979639512)

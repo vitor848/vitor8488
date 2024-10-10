@@ -12,4 +12,4 @@ vitor.maruchi@escola.pr.gov.br
 
 @vitor-080
 
-![.](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fsmirk-gifs&psig=AOvVaw2qIk-pgM1mgF9JLahRz7Gy&ust=1728664586207000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCICfg8ufhIkDFQAAAAAdAAAAABAc)
+![.](https://media.tenor.com/ZARBViZffU4AAAAM/hd-smirk.gif)

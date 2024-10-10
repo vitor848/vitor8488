@@ -12,5 +12,4 @@ vitor.maruchi@escola.pr.gov.br
 
 @vitor-080
 
-![.](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fdemon-fall-roblox-gif-22320219&psig=AOvVaw3RGYryIipzY3cse_ss47Um&ust=1728664090117000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCIC1sdudhIkDFQAAAAAdAAAAABAh)
-
+![.](https://www.google.com/url?sa=i&url=https%3A%2F%2Fprofile.pics%2Flionel-messi&psig=AOvVaw2Mi7K6luxmswH-B33KXIC8&ust=1728664469631000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCNiLqY-fhIkDFQAAAAAdAAAAABAJ)
